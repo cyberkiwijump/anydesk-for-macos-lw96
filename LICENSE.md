@@ -1,4 +1,4 @@
-# 
+# AnyDesk for macOS updated Extension: remote-printing & low-latency is the best AnyDesk for macOS extension, featuring remote-printing and low-latency. Powerful, efficient, and
 
 
 
